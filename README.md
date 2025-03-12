@@ -1,0 +1,1 @@
+# Ki-m-tra-12-03-2025-Bar-Code-Scan-App
