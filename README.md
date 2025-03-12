@@ -1,1 +1,5 @@
-# Ki-m-tra-12-03-2025-Bar-Code-Scan-App
+ĐẶNG ĐỨC THIÊN ÂN 
+22810310413
+D17CNPM6 
+![482839888_951074420131632_8240706481069937891_n](https://github.com/user-attachments/assets/72d1f9fe-d035-4c42-8faf-18af4d80a6bd)
+![482450038_1351020749499556_1612833071090775351_n](https://github.com/user-attachments/assets/9b290928-92e8-497a-ac14-c764b6bbfc18)
